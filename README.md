@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/716640999908048938/837266525932617748/BLANKIES.gif"></img>
+<img src="https://c.tenor.com/frOjgVit9XIAAAAd/rrane-battal.gif"></img>
 
 <!--
 
