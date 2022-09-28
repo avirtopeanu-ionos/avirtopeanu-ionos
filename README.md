@@ -1,4 +1,4 @@
-<img src="https://c.tenor.com/M7b68FMAVeIAAAAC/cat-breakdancing-cat-breakdance.gif"></img>
+<img src="https://media.discordapp.net/attachments/716640999908048938/837266525932617748/BLANKIES.gif"></img>
 
 <!--
 
