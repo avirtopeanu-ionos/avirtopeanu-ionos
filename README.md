@@ -1,6 +1,10 @@
-### Hi there 👋
+<img src="https://froggi.es/github/8bitcow.gif"></img>
 
 <!--
+
+### Hi there 👋
+
+
 **avirtopeanu-ionos/avirtopeanu-ionos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
