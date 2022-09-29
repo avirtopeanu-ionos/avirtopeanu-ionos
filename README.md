@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/552466832041181192/1023357379787624458/Ragey.gif"></img>
+<img src="https://media.discordapp.net/attachments/504338820028825601/773116621546848256/index.gif"></img>
 
 <!--
 
